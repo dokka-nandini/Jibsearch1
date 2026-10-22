@@ -86,3 +86,7 @@ https://in.jooble.org/jobs-freshers-software-developer-walkin/Bangalore
 For walk-ins you don't need registration — you just walk in. For the pages above, click "Apply" or just carry resume to venue at 10-11 AM.
 
 Do you want me to send you a WhatsApp-style checklist for tomorrow's Arissa + Tech Mahindra walk-in with exact Google Maps pins?
+
+
+
+see these walkins
