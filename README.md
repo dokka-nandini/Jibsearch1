@@ -37,3 +37,52 @@ What to carry tomorrow (22nd):
 Go to: JP Nagar (Arissa) in morning 10 AM, then Whitefield (Soft Suave) by 11 AM
 
 Want me to give you exact Google Maps link + HR contact for Arissa JP Nagar and Tech Mahindra Electronic City? Tell me which area you're in — Whitefield / JP Nagar / Electronic City — I'll order by nearest first.
+
+
+
+
+.
+
+
+###
+
+
+
+
+
+#
+
+
+
+##
+
+
+
+Here are the registration / walk-in apply links for Bengaluru this week:
+
+1. Arissa India - Software Developer (21-23 Oct)
+This is a direct walk-in, no pre-registration needed — just walk in with resume.
+Details + venue: https://www.freshersnow.com/arissa-india-walkin/
+Location: 8th Phase, JP Nagar, Bengaluru
+Date: 21st - 23rd Oct 2026
+
+2. Tech Mahindra - Walk-in 02-30 Oct (Electronic City)
+Daily walk-in 11 AM - 3 PM
+Venue: Tech Mahindra Phase II, Electronic City, Doddanagamangala Village, Bengaluru 560100
+Registration page: https://www.freshersvoice.com/tech-mahindra-walk-in-drive
+Also listed in nationwide walk-in tracker: Tech Mahindra | Bangalore/Hyderabad | 21 Oct to 13 Nov
+
+3. Soft Suave Technologies - Whitefield (22-23 Oct)
+Apply link page: https://www.jobscoupe.[STRIPPED 96 bytes] Venue: 1st floor, Mfar Silverline Tech Park, EPIP Zone Whitefield Rd, Phase 2, Kundalahalli, Whitefield
+
+4. Wipro + TCS + others - Freshers Voice tracker
+All October walk-ins in one page with venue/date:
+https://www.freshersvoice.com → Search "Latest Walk-in Drives in India 2026" — shows TCS Bengaluru/Hyderabad 24 & 28 Oct, Wipro Hyderabad 21-23 Oct, Tech Mahindra Bangalore/Hyderabad
+
+5. Jooble - 5,932 live fresher walk-in jobs in Bangalore
+Apply directly with one-click resume:
+https://in.jooble.org/jobs-freshers-software-developer-walkin/Bangalore
+
+For walk-ins you don't need registration — you just walk in. For the pages above, click "Apply" or just carry resume to venue at 10-11 AM.
+
+Do you want me to send you a WhatsApp-style checklist for tomorrow's Arissa + Tech Mahindra walk-in with exact Google Maps pins?
