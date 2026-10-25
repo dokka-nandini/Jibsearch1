@@ -37,7 +37,7 @@ What to carry tomorrow (22nd):
 Go to: JP Nagar (Arissa) in morning 10 AM, then Whitefield (Soft Suave) by 11 AM
 
 Want me to give you exact Google Maps link + HR contact for Arissa JP Nagar and Tech Mahindra Electronic City? Tell me which area you're in — Whitefield / JP Nagar / Electronic City — I'll order by nearest first.
-
+gm tc 77
 
 
 
