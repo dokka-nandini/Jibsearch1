@@ -31,6 +31,7 @@ Good as entry to move to dev after 3-6 months
 5. Jooble Live Pool
 5,932 current vacancies for "Freshers software developer walkin Jobs in Bangalore - October 2026"
 Associate Software Developer - Immediate start, Apply by 26 Oct' 26
+8c more c
 
 What to carry tomorrow (22nd):
 5 resumes, Aadhaar, PAN, all marksheets, laptop
